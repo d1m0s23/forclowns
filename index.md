@@ -7,6 +7,7 @@
  >>> Сливы: __[tikni](https://git.rip/numbik1/discord-collection/-/tree/master/angrymouse)__ 
  ---
  # Советы
+ > При общении с этими существами, рекомендуем надевать такой костюм, чтобы не стать чсв,токсичным и не перехватить их диагнозы
 ![antidolbaebizm](https://cdn.discordapp.com/attachments/748252069139316797/808007160050352138/sanificazioni-ambientali.png)
 
 **© d1m0s23**
