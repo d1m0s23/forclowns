@@ -7,4 +7,4 @@
  >>> Сливы: __[tikni](https://git.rip/numbik1/discord-collection/-/tree/master/angrymouse)__ 
  ---
 
-**(c) d1m0s23**
+**© d1m0s23**
