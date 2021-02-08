@@ -6,7 +6,9 @@
  >>> Ссылки: __[top-bots.govno](https://top-bots.xyz/)__  __[xerlbot](https://xerl.co.ua/)__
  >>> Сливы: __[tikni](https://git.rip/numbik1/discord-collection/-/tree/master/angrymouse)__ 
 ---
- ## Советы
+
+
+## Советы
  > При общении с этими существами, рекомендуем надевать такой костюм, чтобы не стать чсв,токсичным и не перехватить их диагнозы
 ![antidolbaebizm](https://cdn.discordapp.com/attachments/748252069139316797/808007160050352138/sanificazioni-ambientali.png)
 >> P.s Если вы уже имели контакт с ними, советуем вам посетить дискорд-врача **Xrush#7816**
